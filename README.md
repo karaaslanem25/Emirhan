@@ -1,2 +1,1 @@
 
-selamun aleyküm kanka
